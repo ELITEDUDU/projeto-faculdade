@@ -1,2 +1,0 @@
-# projeto-faculdade
-projetos faculdade
